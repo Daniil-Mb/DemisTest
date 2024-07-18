@@ -1,1 +1,1 @@
-ch01765.tw1.ru
+https://ch01765.tw1.ru
